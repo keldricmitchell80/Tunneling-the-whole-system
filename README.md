@@ -34,8 +34,8 @@
 
 # See how it works v1.0.0
 ----------------------
-- 🔞 V1.0..0 https://youtu.be/61bd1NYfdNE
-
+- 🔞 https://youtu.be/KiPKmmc2CzI
+- 
 # How to ger:
 ----------------------
 - 🔞 https://m4nifest0.com
